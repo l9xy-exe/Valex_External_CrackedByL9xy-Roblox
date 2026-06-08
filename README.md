@@ -10,4 +10,4 @@
 **Open the Menu/GUI
 – Press Insert to open/close the menu.**
 
-**Contact Me On Discord :_xx.9**
+**Contact Me On Discord :9jlg**
